@@ -1,2 +1,1 @@
-Hey, Im EasyLemonJuice.
-I use this to make websites.
+Proud worker for '50 lashings and 1 firing squad™'
